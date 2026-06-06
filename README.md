@@ -1,2 +1,0 @@
-# exam-pptn
-dsad
